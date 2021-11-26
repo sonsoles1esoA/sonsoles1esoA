@@ -3,7 +3,7 @@
  NAVIDAD NAVIDAD SWUIT NAVIDAD
  🌱 I’m PAPA NOEL HOHOHO HOHOHO
  HOHOHO HAPPY CHRISTMAS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
- 💞️ I'm happy becose I'm not sad because is christmas bro!
+ 💞️ I'm happy because I'm not sad because is christmas bro!
  📫 dont come home if you dont give me presents.
  CHRISTMAAAAAAAAAAAAAAS HOHOHOHOHO
  MUM I WANT MY PRESEEEEEENTS
