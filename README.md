@@ -1,13 +1,5 @@
  👋 Hi, I’m @sonsoles1esoA
- 👀 I’m interested in MY PRESENTS
- NAVIDAD NAVIDAD SWUIT NAVIDAD
- 🌱 I’m PAPA NOEL HOHOHO HOHOHO
- HOHOHO HAPPY CHRISTMAS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
- 💞️ I'm happy because I'm not sad because is christmas bro!
- 📫 dont come home if you dont give me presents.
- CHRISTMAAAAAAAAAAAAAAS HOHOHOHOHO
- MUM I WANT MY PRESEEEEEENTS
- PAPA NOEL ARE THE PARENTS AAA CRY CRY
- PAPA NOLES ARE THE PARENTS= SAD CHILD / PAPA NOEL IS PAPA NOEL= HAPPY CHILD
- YOU DONT ARE PAPA NOEL BECAUSE PAPA NOEL IS ME 
- HOHOHO HAPPY CHRISTMAS FOR ALL AND GIVE ME YOUR PRESENTS
+ Sunito te quiere *muak*
+ JAJAJAJA falta poco para christmas
+ HAPPY NAVIDAD POR ADELANTADO JSJSJSJSJS
+ rezar para que me toque la photocard de sunoo porfa
